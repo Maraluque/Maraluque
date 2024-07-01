@@ -7,5 +7,5 @@
 - 👪 I'm a [GDG](https://developers.google.com/community/gdg) organizer.
 - 📫 How to reach me: [Telegram](https://t.me/MaraLuque) or [Twitter](https://twitter.com/MaraLuqueC)
 
-Ask me about everything you have doubts, i love networking!
+Ask me about everything you have doubts, I love networking!
 🚀 
